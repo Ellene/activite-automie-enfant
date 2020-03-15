@@ -16,6 +16,15 @@ https://lamaitresseetsesmonstrueux.wordpress.com/2017/04/10/petits-cahiers-dauto
 ### Maths
 Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages-magiques-maths-CP-LutinBazar.pdf
 
+## Tous niveaux
+### Expériences
+* Faire pousser les carottes (et autres légumes à racines comme navets, panais ...) : https://www.caboucadin.com/jardinage-enfant/faire-pousser-une-carotte.php
+* Faire germer une patate douce : https://jardinage.ooreka.fr/fiche/voir/307831/faire-germer-une-patate-douce
+
+### Recettes faciles
+* Cake au pépite de chocolat : https://www.marciatack.fr/recette-cake-aux-pepites-de-chocolat/
+* Choco-flemme : https://owiowifouettemoi.com/2020/01/16/le-choco-flemme/
+
 ## Podcasts
 
 * [Salut l’info ! : un podcast de franceinfo et Astrapi pour les 7-11 ans](https://www.astrapi.com/planete-astrapi/actualites-astrapi/salut-l-info-podcast-franceinfo-astrapi)
@@ -30,3 +39,4 @@ Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages
 * [Jean-Pierre Vernant : Une histoire d'Ulysse pour les enfants](https://www.franceculture.fr/emissions/les-nuits-de-france-culture/jean-pierre-vernant-une-histoire-d-ulysse-pour-les-enfants)
 * [Encore une histoire - le podcast d'histoires destinées aux enfants](https://shows.acast.com/encore-une-histoire/)
 * [A Hauteur d'Enfants - Les enfants ont des choses à dire. Ecoutons-les !](https://www.francebleu.fr/emissions/a-hauteur-d-enfant/herault)
+
