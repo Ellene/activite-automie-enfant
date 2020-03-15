@@ -21,4 +21,7 @@ Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages
 * Faire pousser les carottes (et autres légumes à racines comme navets, panais ...) : https://www.caboucadin.com/jardinage-enfant/faire-pousser-une-carotte.php
 * Faire germer une patate douce : https://jardinage.ooreka.fr/fiche/voir/307831/faire-germer-une-patate-douce
 
+### Recettes faciles
+* Cake au pépite de chocolat : https://www.marciatack.fr/recette-cake-aux-pepites-de-chocolat/
+* Choco-flemme : https://owiowifouettemoi.com/2020/01/16/le-choco-flemme/
 
