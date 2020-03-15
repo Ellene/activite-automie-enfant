@@ -29,3 +29,4 @@ Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages
 * [Petits Curieux - Toutes les réponses à tes questions ! Pour les enfants de 7 à 12 ans](http://fr-fr.radioline.co/podcast-petits-curieux)
 * [Jean-Pierre Vernant : Une histoire d'Ulysse pour les enfants](https://www.franceculture.fr/emissions/les-nuits-de-france-culture/jean-pierre-vernant-une-histoire-d-ulysse-pour-les-enfants)
 * [Encore une histoire - le podcast d'histoires destinées aux enfants](https://shows.acast.com/encore-une-histoire/)
+* [A Hauteur d'Enfants - Les enfants ont des choses à dire. Ecoutons-les !](https://www.francebleu.fr/emissions/a-hauteur-d-enfant/herault)
