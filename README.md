@@ -15,3 +15,10 @@ https://lamaitresseetsesmonstrueux.wordpress.com/2017/04/10/petits-cahiers-dauto
 
 ### Maths
 Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages-magiques-maths-CP-LutinBazar.pdf
+
+## Tous niveaux
+### Expériences
+* Faire pousser les carottes (et autres légumes à racines comme navets, panais ...) : https://www.caboucadin.com/jardinage-enfant/faire-pousser-une-carotte.php
+* Faire germer une patate douce : https://jardinage.ooreka.fr/fiche/voir/307831/faire-germer-une-patate-douce
+
+
