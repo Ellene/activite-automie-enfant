@@ -25,6 +25,9 @@ Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages
 * Cake au pépite de chocolat : https://www.marciatack.fr/recette-cake-aux-pepites-de-chocolat/
 * Choco-flemme : https://owiowifouettemoi.com/2020/01/16/le-choco-flemme/
 
+### Histoires audio
+* La série Raconte-moi des histoires : https://www.youtube.com/playlist?list=PLSa_9eZpBOjiPSW6Azg9hYBLXJo_kXNBA
+
 ## Podcasts
 
 * [Salut l’info ! : un podcast de franceinfo et Astrapi pour les 7-11 ans](https://www.astrapi.com/planete-astrapi/actualites-astrapi/salut-l-info-podcast-franceinfo-astrapi)
