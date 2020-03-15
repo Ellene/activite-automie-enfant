@@ -12,3 +12,6 @@ Lister des ressources d'activité pour occuper les enfants durant cette période
 ## CP
 ### Fiches d'autonomie
 https://lamaitresseetsesmonstrueux.wordpress.com/2017/04/10/petits-cahiers-dautonomie-en-cp/
+
+### Maths
+Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages-magiques-maths-CP-LutinBazar.pdf
