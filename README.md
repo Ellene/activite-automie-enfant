@@ -8,8 +8,10 @@ Lister des ressources d'activité pour occuper les enfants durant cette période
 * http://ekladata.com/dTGL0L2SZedrHQDbkMke_HoQgC4/AIMPSP3S.pdf
 * http://ekladata.com/OiubUBXZLAT_A5LmWQlfm1-s2ZE/AIMPSP4S.pdf
 * http://ekladata.com/AeEvVXfh7Xo--C7dMHq24xPEWSA/AIMPSP5S.pdf
+
 ### Acitivités de découpage
 * http://www.ecolepetitesection.com/2014/10/fiche-decoupage-ms-chez-flavie.html
+* http://educaroline.fr/petite-section/?e=83
 
 ## CP
 ### Fiches d'autonomie
