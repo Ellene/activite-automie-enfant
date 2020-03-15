@@ -2,12 +2,14 @@
 Lister des ressources d'activité pour occuper les enfants durant cette période de confinement.
 
 ## Petite section
-### Activités de découpage
+### Activités
 * http://ekladata.com/doyr_fMIsF6DT-oFyc4HzhN7MNw/AIMPSP1S.pdf
 * http://ekladata.com/uYZFF9oj_rCqrIdYpybnJ0CU8hU/AIMPSP2S.pdf
 * http://ekladata.com/dTGL0L2SZedrHQDbkMke_HoQgC4/AIMPSP3S.pdf
 * http://ekladata.com/OiubUBXZLAT_A5LmWQlfm1-s2ZE/AIMPSP4S.pdf
 * http://ekladata.com/AeEvVXfh7Xo--C7dMHq24xPEWSA/AIMPSP5S.pdf
+### Acitivités de découpage
+* http://www.ecolepetitesection.com/2014/10/fiche-decoupage-ms-chez-flavie.html
 
 ## CP
 ### Fiches d'autonomie
