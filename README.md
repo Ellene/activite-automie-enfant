@@ -28,6 +28,8 @@ Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages
 ### Recettes faciles
 * Cake au pépite de chocolat : https://www.marciatack.fr/recette-cake-aux-pepites-de-chocolat/
 * Choco-flemme : https://owiowifouettemoi.com/2020/01/16/le-choco-flemme/
+* Gateau de maïs : https://cuisine-creole.com/gateau-ti-son/
+* Gateau yaourt : https://www.marmiton.org/recettes/recette_gateau-au-yaourt_12719.aspx
 
 ### Histoires audio
 * La série Raconte-moi des histoires : https://www.youtube.com/playlist?list=PLSa_9eZpBOjiPSW6Azg9hYBLXJo_kXNBA
