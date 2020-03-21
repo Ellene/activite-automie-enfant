@@ -21,6 +21,10 @@ https://lamaitresseetsesmonstrueux.wordpress.com/2017/04/10/petits-cahiers-dauto
 Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages-magiques-maths-CP-LutinBazar.pdf
 
 ## Tous niveaux
+
+### Calcul mental
+* Calculatice : https://calculatice.ac-lille.fr/spip.php?rubrique2
+
 ### Expériences
 * Faire pousser les carottes (et autres légumes à racines comme navets, panais ...) : https://www.caboucadin.com/jardinage-enfant/faire-pousser-une-carotte.php
 * Faire germer une patate douce : https://jardinage.ooreka.fr/fiche/voir/307831/faire-germer-une-patate-douce
@@ -33,6 +37,20 @@ Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages
 
 ### Histoires audio
 * La série Raconte-moi des histoires : https://www.youtube.com/playlist?list=PLSa_9eZpBOjiPSW6Azg9hYBLXJo_kXNBA
+
+### Dessins et coloriages
+* Planches de BD à compléter
+  * Sacrées sorcières de Pénéloppe Bagieu : https://twitter.com/PenelopeB/status/1240909555439149056
+  * Riad Sattouf : 
+    - [L'arabe du futur](riadsattouf.com/collections/frontpage/products/larabe-du-futur-a-telecharger-a-ecrire-et-a-colorier)
+    - [L'arabe du futur](https://www.riadsattouf.com/collections/frontpage/products/larabe-du-futur-a-telecharger-a-ecrire-et-a-colorier-1)
+    - [Les cahiers d'Esther](https://www.riadsattouf.com/collections/frontpage/products/les-cahiers-desther-br-a-telecharger-a-ecrire-et-a-colorier-cliquez-sur-limage)
+    - [Les cahier d'Esther](https://www.riadsattouf.com/collections/frontpage/products/les-cahiers-desther-br-a-telecharger-a-ecrire-et-a-colorier-cliquez-sur-limage-1)
+    - [Pipit Farlouse](https://www.riadsattouf.com/collections/frontpage/products/pipit-farlouse-br-a-telecharger-a-ecrire-et-a-colorier-cliquez-sur-limage)
+    - [Pipit Farlouse](https://www.riadsattouf.com/collections/frontpage/products/pipit-farlouse-br-a-telecharger-a-ecrire-et-a-colorier-cliquez-sur-limage-1)
+  * Template de la coronamaison (maison de confinement de tes rêves) : https://twitter.com/PenelopeB/status/1239186251833630720
+    
+  
 
 ## Podcasts
 
