@@ -9,7 +9,7 @@ Lister des ressources d'activité pour occuper les enfants durant cette période
 * http://ekladata.com/OiubUBXZLAT_A5LmWQlfm1-s2ZE/AIMPSP4S.pdf
 * http://ekladata.com/AeEvVXfh7Xo--C7dMHq24xPEWSA/AIMPSP5S.pdf
 
-### Acitivités de découpage
+### Activités de découpage
 * http://www.ecolepetitesection.com/2014/10/fiche-decoupage-ms-chez-flavie.html
 * http://educaroline.fr/petite-section/?e=83
 
@@ -28,6 +28,7 @@ Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages
 ### Expériences
 * Faire pousser les carottes (et autres légumes à racines comme navets, panais ...) : https://www.caboucadin.com/jardinage-enfant/faire-pousser-une-carotte.php
 * Faire germer une patate douce : https://jardinage.ooreka.fr/fiche/voir/307831/faire-germer-une-patate-douce
+* Idées d'expérience de la cité des sciences : http://www.cite-sciences.fr/fr/au-programme/lieux-ressources/bibliotheque/enfants-familles/1-jour-1-activite/
 
 ### Recettes faciles
 * Cake au pépite de chocolat : https://www.marciatack.fr/recette-cake-aux-pepites-de-chocolat/
@@ -66,4 +67,6 @@ Coloriages magiques : http://lutinbazar.fr/wp-content/uploads/2015/04/Coloriages
 * [Jean-Pierre Vernant : Une histoire d'Ulysse pour les enfants](https://www.franceculture.fr/emissions/les-nuits-de-france-culture/jean-pierre-vernant-une-histoire-d-ulysse-pour-les-enfants)
 * [Encore une histoire - le podcast d'histoires destinées aux enfants](https://shows.acast.com/encore-une-histoire/)
 * [A Hauteur d'Enfants - Les enfants ont des choses à dire. Ecoutons-les !](https://www.francebleu.fr/emissions/a-hauteur-d-enfant/herault)
+
+
 
